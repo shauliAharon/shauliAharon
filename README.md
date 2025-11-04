@@ -21,4 +21,4 @@ Today, I bring the same mindset into development — clear thinking, teamwork, a
 ---
 
 ##  Let’s connect
-[LinkedIn](https://www.linkedin.com/in/shauliaharon) 
+[LinkedIn](https://www.linkedin.com/in/shauliaharon) · [Email](mailto:shauliaharon@gmail.com)
